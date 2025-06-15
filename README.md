@@ -4,6 +4,10 @@
 ![KEIMENO 3 TELIKO GIA ISTOSELIDA KAI GITHUB](https://github.com/user-attachments/assets/a3acc1a5-2f53-4eb8-af14-10b8dd420124)
 ![ΥΛΙΚΑ ΚΑΙ ΚΟΣΤΟΣ ΤΕΛΙΚΑ ΓΙΑ GITHUB ΚΑΙ ΙΣΤΟΣΕΛΙΔΑ](https://github.com/user-attachments/assets/b1a62d11-ed4d-48e3-8b65-8b903ba479b4)
 
+ΠΑΡΑΚΑΤΩ ΥΠΑΡΧΕΙ Ο ΣΥΝΔΕΣΜΟΣ ΠΑΡΟΥΣΙΑΣΗΣ ΤΟΥ PROJECT ΜΑΣ
+
+https://drive.google.com/file/d/1XHfJxy62b65au0CP-a9KxhEYgpDH8YHc/view?usp=drive_link
+
 
 
 

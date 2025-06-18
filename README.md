@@ -6,8 +6,8 @@
 
 ΠΑΡΑΚΑΤΩ ΥΠΑΡΧΕΙ Ο ΣΥΝΔΕΣΜΟΣ ΠΑΡΟΥΣΙΑΣΗΣ ΤΟΥ PROJECT ΜΑΣ
 
-https://drive.google.com/file/d/1XHfJxy62b65au0CP-a9KxhEYgpDH8YHc/view?usp=drive_link
 
+https://drive.google.com/file/d/1j--I6EuT3michhU7O8kjtC8WP4xpeMfU/view
 
 
 
